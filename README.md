@@ -1,1 +1,0 @@
-# bowplusnakamura.github.io
